@@ -40,3 +40,33 @@ https://modsfire.com/bG5BCOLHq47p179
 ماب هجوله 
 
 https://modsfire.com/x0pFzyU8nlU5vk9
+
+كابرس ثاني 
+
+https://sharemods.com/sn3h6v9l2a70/DXTR_Caprice_2012___40_1__41_.rar.html
+
+دينفدر 
+
+https://modsfire.com/3bxgv6168U5H94T
+
+جنسس
+
+https://modsfire.com/XXBlEoBv5jSL6Gl
+
+دوج تشارجر
+
+https://modsfire.com/51BH2W7dOpTmvM7
+
+إلنترا 
+
+https://modsfire.com/M9GIg72wXkRlAn8
+
+كيا مي فور 
+
+https://modsfire.com/9t64480USFr6DdC
+
+
+كيا كي ايت
+
+https://modsfire.com/pPDv5UsqME3erU4
+
