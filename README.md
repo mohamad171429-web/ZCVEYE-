@@ -206,3 +206,7 @@ https://www.beamng.com/resources/variable-grip-tires-on-lua.21681/
 
 
 
+خشونه الكفرات احسن 
+
+
+https://www.beamng.com/resources/road-grip-editor.15350/
