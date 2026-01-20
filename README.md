@@ -210,3 +210,9 @@ https://www.beamng.com/resources/variable-grip-tires-on-lua.21681/
 
 
 https://www.beamng.com/resources/road-grip-editor.15350/
+
+
+
+
+
+https://discord.com/channels/1006702323944390696/1446726693602594969
